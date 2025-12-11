@@ -1,6 +1,6 @@
 # 奖励哥是王的官方网站
-* * *
 ![](https://mindplus.cc/images/logo_m.png)
+* * *
 
 [mind+官网](http://www.mindplus.cc)
 

@@ -30,5 +30,8 @@
 ## [下载奖励OSNEXTBETA1版本](https://mc.dfrobot.com.cn/data/attachment/forum/202409/18/200500sycvqmqisw4lllq5.zip)
 
 # 下载奖励OS的所有版本
+* * *
 
 ## [下载奖励OS3.5](https://mc.dfrobot.com.cn/data/attachment/forum/202408/26/163900zxaeama82vgaqapm.zip)
+
+## [下载奖励OS3.0](https://mc.dfrobot.com.cn/data/attachment/forum/202408/25/220730pv85ryaur50tictr.zip)

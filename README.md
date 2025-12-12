@@ -17,3 +17,5 @@
 ## [下载奖励OSNEXT2.0版本](https://mc.dfrobot.com.cn/data/attachment/forum/202411/17/125945m30hz3omojxb0xuu.zip)
 
 ## [下载奖励OSNEXT1.5版本](https://mc.dfrobot.com.cn/data/attachment/forum/202512/12/132642u0y8ppppuypl0xyd.zip)
+
+## [下载奖励OSNEXT1.0版本](https://mc.dfrobot.com.cn/data/attachment/forum/202410/11/213810s3hi66361fryh7lh.zip)

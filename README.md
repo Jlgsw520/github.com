@@ -43,3 +43,10 @@
 ## [下载奖励OS1.0（星空特别版）](https://mc.dfrobot.com.cn/forum.php?mod=attachment&aid=MTc1MjgyfDA3ZDhkZTI0fDE3NjU1ODg2MDl8ODY0Mjg4fDMxOTc1Mg%3D%3D)
 
 ## [下载奖励OS1.0](https://mc.dfrobot.com.cn/forum.php?mod=attachment&aid=MTczNzc4fGUyOTM5YjFlfDE3NjU1ODg2NzF8ODY0Mjg4fDMxOTc0Ng%3D%3D)
+
+# 下载其他奖励系列作品
+* * *
+
+## [下载奖励账户中心](https://mc.dfrobot.com.cn/data/attachment/forum/202410/18/200938ftt9hujx0tz6phmz.zip)
+
+## [下载小游戏逃离房间](https://mc.dfrobot.com.cn/forum.php?mod=attachment&aid=MTc1Mzk4fDU4OWMxOWVhfDE3NjU1ODk0NDV8ODY0Mjg4fDMxOTc5OQ%3D%3D)
